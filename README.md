@@ -1,1 +1,1 @@
-# rsschool-cv
+https://konstantinvl.github.io/rsschool-cv/
